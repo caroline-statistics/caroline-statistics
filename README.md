@@ -1,4 +1,4 @@
-# Olá, eu sou Caroline Beatriz Silva Ferreira 👋
+# Olá, sou Caroline Beatriz 👋
 
 ### Analista de Dados | Estatística | BI & Automação
 
